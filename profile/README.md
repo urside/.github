@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://i.imgur.com/jx17oHT.gif">
+  <img src="https://c.tenor.com/OPt_SVuI83kAAAAd/kawaii.gif" width="50%">
 </p>
